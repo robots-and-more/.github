@@ -1,1 +1,1 @@
-# Very Cool People, doing very cool stuff 
+# Building robots and more!
